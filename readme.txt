@@ -1,1 +1,1 @@
-jai bharat
+jai bharat jai hindustan
